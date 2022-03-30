@@ -1,4 +1,4 @@
-a- 👋 Hi, I’m @Dijitizzle
+- 👋 Hi, I’m @Dijitizzle
 - 👀 I’m interested in  саморазватие
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
