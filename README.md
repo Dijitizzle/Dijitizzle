@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Dijitizzle
-- 👀 I’m interested in  саморазватие
+- 👀 I’m interested in  self-development
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
 - 📫  Связаться со мной можно через почту Dijitizzle@gmail.com
